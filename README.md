@@ -1,6 +1,6 @@
 # Paises
 ### Nomes:
-* Guilherme Cirelli
+* Guilherme Cirelli (Estados Unidos)
 * Guilherme Duarte 
 * Pedro Henrique 
 * Joao Felipe
