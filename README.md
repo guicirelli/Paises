@@ -6,8 +6,7 @@
 * Joao Felipe (India)
 * Vinicius Ribeiro (Canada)
 
-### Estados Unidos
-
+### (Estados Unidos)
 ### Sobre
 Os Estados Unidos têm uma enorme influência no mundo, especialmente em áreas como cultura, tecnologia e economia. A vida por lá é marcada pela diversidade, com gente de todos os cantos do planeta. Além disso, a cultura pop, como filmes e música, acaba moldando muitas referências globais.
 ### Estados
